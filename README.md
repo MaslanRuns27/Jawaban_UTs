@@ -1,0 +1,6 @@
+Ini kode lumayan buat muter otak pas no 4(kayaknya hampir semua yang ini rada ribet)
+tapi dengan konsisten yang panjang........................................................................
+akhirnya kode ini beres juga
+Semoga dengan beresnya UTS ini dapat nilai yang memuaskan
+#semoga tidak ada error lagi dan tidak ada REVISI :>
+AAAAAAAAAAAAAMIIIIIIIIIIIIIIIINNNNNNNNNNNNNNNNNN.................
